@@ -1,1 +1,1 @@
-# dilci-sozluk
+# updates will be done in couple weeks
